@@ -8,7 +8,7 @@ This article provides a comprehensive review of the best **capcut templates** av
 
 Looking for a quick upgrade for your video projects? Try exploring the extensive library of [capcut templates](https://elements.envato.com/all-items/capcut) on Envato Elements. With hundreds of ready-to-use templates and assets, you'll find everything you need to kickstart your creativity. Plus, you can check out the subscription details on [Envato Elements Pricing](https://elements.envato.com/pricing) to see which plan fits your needs best!
 
----
+![Image](https://github.com/user-attachments/assets/c1ad7a28-d7a7-4b93-ac66-c760de75825b)
 
 ## Review of the 6 Best CapCut Templates Categories
 
